@@ -7,4 +7,3 @@ title = "Pagina Principal"
 # See configuration options for more details: 
 # https://gohugo.io/getting-started/configuration/#toml-configuration
 disableKinds = ["RSS", "taxonomy", "taxonomyTerm"]
-theme = "bilberry-hugo-theme"
