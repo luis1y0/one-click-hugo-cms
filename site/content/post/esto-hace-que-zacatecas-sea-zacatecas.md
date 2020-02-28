@@ -13,3 +13,5 @@ Zacatecas es un lugar muy bello donde se conserva la riqueza minera del mundo. P
 Existe la posibilidad de que camines a través de la mina o tomes un tren para llegar de una entrada a la otra más rápido.
 
 Además de que puedes comprar algún mineral extraído de la misma mina.
+
+![](img/img2.jpeg)
