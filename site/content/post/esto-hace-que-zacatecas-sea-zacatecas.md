@@ -15,3 +15,11 @@ Existe la posibilidad de que camines a través de la mina o tomes un tren para l
 Además de que puedes comprar algún mineral extraído de la misma mina.
 
 ![](img/img2.jpeg)
+
+## 2. La Mina Club
+
+Es una mina posee una impactante estructura natural, El Edén ofrece un espacio cultural y un museo. Te sorprenderá encontrar ahí mismo “La Mina Club”, un centro nocturno situado en la sección donde se trituraban los minerales.
+
+El piso de este club nocturno es un cristal que permite ver a través del mismo la profundidad de la mina iluminado con luces de colores para dar más ambiente.
+
+![](img/img3.jpeg)
