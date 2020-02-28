@@ -1,6 +1,6 @@
 ---
 title: Que hacer en Guadalajara
-date: 2020-02-29T19:26:59.872Z
+date: 2020-02-18T19:26:59.872Z
 description: 'Día 12 : Zacatecas – Que hacer en Guadalajara'
 ---
 Hoy nuestro día empieza a las 5 de la mañana, dando por finalizada nuestra estancia en Zacatecas para empezar con las **visitas que hacer en Guadalajara** que tenemos previstas, la ciudad que será nuestra última parada en esta etapa de este [viaje a México en 45 días](https://www.viajeroscallejeros.com/viaje-mexico-45-dias/), en la que hemos visitado varias ciudades coloniales.\
