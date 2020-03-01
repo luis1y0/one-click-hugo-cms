@@ -1,6 +1,6 @@
 ---
 title: "Mi blog Personal"
-subtitle: Support sustainable farming while enjoying a cup
+subtitle: En este espacio comparto mis ideas y algo de mi trabajo.
 image: /img/home-jumbotron.jpg
 blurb:
     heading: Why Kaldi?
