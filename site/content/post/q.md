@@ -1,0 +1,17 @@
+---
+title: Que hacer en Guadalajara
+date: 2020-02-18T19:26:59.872Z
+description: 'Día 12 : Zacatecas – Que hacer en Guadalajara'
+---
+Hoy nuestro día empieza a las 5 de la mañana, dando por finalizada nuestra estancia en Zacatecas para empezar con las **visitas que hacer en Guadalajara** que tenemos previstas, la ciudad que será nuestra última parada en esta etapa de este [viaje a México en 45 días](https://www.viajeroscallejeros.com/viaje-mexico-45-dias/), en la que hemos visitado varias ciudades coloniales.\
+A las 7 de la mañana bajamos a la recepción del [Hotel Casa Torres](https://www.booking.com/hotel/mx/casa-torres.es.html?aid=393491), el que ha sido nuestro [alojamiento en Zacatecas](https://www.booking.com/city/mx/zacatecas.es.html?aid=393491) estos días atrás y donde después de hacer el check-out nos piden un taxi que por 60 pesos nos lleva a la Estación Central, desde donde a las 8 sale nuestro autobús, esta vez de la empresa Ómnibus, que nos llevará **de Zacatecas a Guadalajara**.
+
+## Como ir de Zacatecas a Guadalajara
+
+Como en anteriores trayectos de este [viaje a México por libre](https://www.viajeroscallejeros.com/mexico-por-libre-preparativos-viaje/), el traslado de Zacatecas a Guadalajara se puede hacer con varias compañías. En este caso nosotros hemos escogido Ómnibus únicamente por un tema de horarios, ya que esta compañía nos permitía salir a las 8 de la mañana, llegando así a la 1 del mediodía a Guadalajara, algo que nos permitirá disfrutar prácticamente de la tarde de hoy por completo, además del día de mañana.\
+Después de la experiencia también y comparándolo con ETN, tenemos que decir que nos han gustado más los autobuses de estos últimos, únicamente por una cuestión de espacio, ya que los asientos son algo más amplios, cosa que en viajes largos se agradece. Y aunque Ómnibus también tiene servicio de cafetería, enchufes, reclinación de asientos y wifi, no son tan cómodos como ETN.
+
+Salimos puntuales a las 8 de la mañana, despidiéndonos de la ciudad, recordando las muchas [cosas que hacer en Zacatecas](https://www.viajeroscallejeros.com/que-hacer-en-zacatecas/) que hicimos ayer y a través de las que podemos confirmar que esta ciudad ha sido toda una sorpresa para nosotros y se ha convertido en uno de los [lugares que visitar en México imprescindibles](https://www.viajeroscallejeros.com/lugares-que-visitar-en-mexico/).
+
+Desde Zacatecas a Guadalajara tenemos un viaje de 5 horas que hacemos rodeados de increíbles paisajes de los que apartamos nuestra vista solo de vez en cuando para repasar la planificación de cosas **que hacer en Guadalajara** que tenemos prevista para esta tarde y con la que, prácticamente sin darnos cuenta llegamos puntuales, a la 1 del mediodía, a la Estación Central de Guadalajara, que nos recibe con un cielo gris, por primera vez en este viaje.\
+Después de recoger nuestras maletas, lo primero que hacemos es pedir un UBER que nos lleve a nuestro hotel, el [One Guadalajara Centro](https://www.booking.com/hotel/mx/one-guadalajara-centro-historico.es.html?aid=393491), el que será nuestro [alojamiento en Guadalajara](https://www.booking.com/city/mx/guadalajara.es.html?aid=393491) las próximas dos noches, por 120 pesos. Pero como nos ha pasado en las últimas ocasiones con UBER, al tener estos problemas con los taxistas en las estaciones, el conductor después de esperar 15 minutos cancela el servicio, por lo que tenemos que coger un taxi que por 170 pesos nos lleva hasta el hotel.
